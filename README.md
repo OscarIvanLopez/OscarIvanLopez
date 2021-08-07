@@ -1,4 +1,4 @@
-# Oscar Ivan Lopez - software engineer @ivadevv ✨
+# Oscar Ivan Lopez - software engineer @oscarivandev ✨
 
 Hello 👋🏻 I am Oscar, a software engineer, I am very passionate about technology
 
